@@ -1,5 +1,5 @@
 # Рецепт: Картофель «Айдахо»
-[оригинал](https://eda.ru/recepty/zavtraki/bananovie-pankejki-35975)
+[оригинал](https://eda.ru/recepty/osnovnye-blyuda/kartofel-ajdaho-30625)
 
 ### Ингредиенты
 | Название        	| Количество    |
